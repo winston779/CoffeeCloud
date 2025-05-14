@@ -1,6 +1,6 @@
 # Coffee咖啡云官网地址
 
-最新地址：[love-coffee.club](https://love-coffee.tech/#/register?code=bn50BHqK)
+最新地址：[love-coffee.club](https://love-coffee.cfd/#/register?code=bn50BHqK)
 
 ## 咖啡云介绍
 
